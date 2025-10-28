@@ -61,5 +61,6 @@ If something about my work resonates, feel free to reach out.
 
 🌐 Portfolio: https://crystal-depalma.com  
 📫 Email: crystaldepalma@yahoo.com
+
 💼 LinkedIn: https://www.linkedin.com/in/crystal-depalma-496710304/
 
